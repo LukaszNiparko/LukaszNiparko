@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LukaszNiparko
-- 👀 I’m interested in Human Rights
+- 👀 I’m interested in Digital Civil Society
 - 🌱 I’m currently learning coding for social justice
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me digitalukasz@gmail.com
